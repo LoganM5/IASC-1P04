@@ -12,3 +12,10 @@ Attribution (3.0)
 ---
 
 "Mondo silente (SLV-2 Planet) # BG 01" by osolev is licensed under CC BY-NC 2.0
+
+---
+
+"Redmond Caves" by BLM Oregon & Washington is licensed under CC BY 2.0
+
+---
+
